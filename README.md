@@ -1,7 +1,10 @@
 Hello!! You can call me Alex or Azure! ^q^
+
 I'm 18y old!
+
 I have Autism and ADHD, please be gentle with me! Also, i'm brazilian :]
-My pronouns is: He/she/they!
+
+My pronouns is: He/she/they,
 I'm a non-binary + fell free to cuddles and chat w me!
 
 -------------------------------------------------------------------------
