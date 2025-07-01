@@ -1,20 +1,17 @@
-Hello!! You can call me Alex or Azure! ^q^
+Hi there!! Welcome to my main info page!!
+---------------------------------------
 
-I'm 18y old!
+Check out the links below — everything you need to know about me is there!
 
-I have Autism and ADHD, please be gentle with me! Also, i'm brazilian :]
+https://firefox.mmm.page  [ Best viewed on PC or Tablet! ]
 
-My pronouns is: He/she/they,
-I'm a non-binary + fell free to cuddles and chat w me!
+https://firefoxbio.straw.page  [ Lil infos and fun! ]
 
--------------------------------------------------------------------------
-*DNI:*
-If You Support Homophobia, Xenophobia, Transphobia, Racism (any form of discrimination), Proshippers ; You Support r@pe, incest, pedophilia, etc. . .
+https://en.pronouns.page/@Firef0xz
 
--------------------------------------------------------------------------
-***BFI:***
-Please be patient and choose the words you use with me! ; Sometimes I can be too childish or my reactions/actions can occur as you didn't plan, I have no control over, so if something happens, let me know! ; Sometimes I can have a meltdown, please give me space if this happens or don't say obvious things like "just calm down" this can only make it worse.
+---------------------------------------
 
--------------------------------------------------------------------------
-MAINS!:
-1x4, Elliot, Chance, Shed and Taph!
+> Just so you know: sometimes I might be off-tab on Pony Town, but no worries — just send me a whisper and I'll reply soon!
+> And feel free to cuddles with me!! I really love cuds <3
+---------------------------------------
+
